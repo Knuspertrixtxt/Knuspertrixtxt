@@ -13,7 +13,7 @@ Hey I am Knuspertrix,
 
 my real name is Tom ;)
 
-I am 22 years old and IT specialist apprentice focus on linux.
+I am 23 years old and IT specialist apprentice focus on linux.
 
 I live in a small village in beautiful lower saxony ^^
 
